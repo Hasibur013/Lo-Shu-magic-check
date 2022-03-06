@@ -1,0 +1,1 @@
+# Lo-Shu-magic-check
